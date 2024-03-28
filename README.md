@@ -12,8 +12,7 @@ Community Engagement: Connect with fellow travelers, share experiences, and gain
 
 How to Use:
 
-Explore Destinations: Browse through our curated collection of destinations or use the search feature to find your dream location.
+Explore Destinations: Browse through our curated collection of destinations or find your dream location.
 Plan Your Trip: Select your desired travel dates, preferences, and budget to receive personalized recommendations.
 Book with Confidence: Once you've found the perfect itinerary, book your flights, accommodations, and activities with ease.
-Share Your Adventures: After your trip, share your experiences and recommendations with the Letzz Go community to inspire others.
 
